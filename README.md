@@ -1,4 +1,6 @@
-Kaline Nayara
+Oii, bem vindo(a) ao meu perfil.
+
+ Meu nome e Kaline Nayara.
 
 email kaline.siquiera.santos@escola.pr.gov.br
 
